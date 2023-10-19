@@ -25,7 +25,6 @@ You can easily reach out to me through my LinkedIn profile [here](https://pk.lin
 
 - LinkedIn: [muhammad-afnan-38208b198](https://pk.linkedin.com/in/muhammad-afnan-38208b198)
 - Medium: [afnan.akram911](https://medium.com/@afnan.akram911)
-- Upwork: [Freelancer Profile](https://www.upwork.com/freelancers/~0164db481b0820b585)
-- Portfolio: [mafnanakram.netlify.app](https://mafnanakram.netlify.app/)
+
 
 Let's synergize, innovate, and co-create a brighter future! 🚀
