@@ -23,7 +23,7 @@ You can easily reach out to me through my LinkedIn profile [here](https://pk.lin
 
 ## 📫 Contact Me
 
-- LinkedIn: [muhammad-afnan-38208b198](https://pk.linkedin.com/in/muhammad-afnan-38208b198)
+- LinkedIn: [muhammad-afnan-38208b198](https://www.linkedin.com/in/muhammad-afnan-akram)
 - Medium: [afnan.akram911](https://medium.com/@afnan.akram911)
 
 
