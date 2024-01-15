@@ -24,7 +24,7 @@ You can easily reach out to me through my LinkedIn profile [here](https://pk.lin
 ## 📫 Contact Me
 
 - LinkedIn: [muhammad-afnan-akram](https://www.linkedin.com/in/muhammad-afnan-akram)
-- Medium: [@afnan.akram911](https://medium.com/@afnan.akram911)
+- Medium: [@muhammadafnanakram](https://muhammadafnanakram.medium.com/)
 
 
 Let's synergize, innovate, and co-create a brighter future! 🚀
